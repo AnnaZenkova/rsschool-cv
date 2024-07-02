@@ -1,5 +1,5 @@
 # Anna Zenkova
 
-## Contacts
+## Skills
 
-### Skills
+## Contacts
